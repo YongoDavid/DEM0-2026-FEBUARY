@@ -15,3 +15,5 @@ New day, continue learning more on next.
 
 FEB 09
 New week, more grind!!
+
+FEB 10
