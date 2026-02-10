@@ -17,3 +17,4 @@ FEB 09
 New week, more grind!!
 
 FEB 10
+New day, more grind on Next.
