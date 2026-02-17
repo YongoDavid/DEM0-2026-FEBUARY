@@ -29,3 +29,4 @@ FEB 16
 New week, new day, same grind.
 
 FEB 17
+New day, more next.js
