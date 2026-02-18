@@ -30,3 +30,5 @@ New week, new day, same grind.
 
 FEB 17
 New day, more next.js
+
+FEB 18
