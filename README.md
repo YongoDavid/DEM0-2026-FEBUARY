@@ -32,6 +32,6 @@ FEB 17
 New day, more next.js
 
 FEB 18
-New da, more grind.
+New day, more grind.
 
 FEB 19
