@@ -54,3 +54,5 @@ New dayy, same grind.
 
 FEB 27
 New day, same grind.
+
+AMAZING MONTH, LESSIONS LEARNT, MISTAKES MADE, WORK IN PROGRESS SEE YOU NEXT MONTH!!
